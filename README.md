@@ -31,4 +31,3 @@
 
 Good luck,
 The Celsius Network Team
-Roy@37335817
